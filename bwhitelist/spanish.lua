@@ -4,7 +4,7 @@
 
 	Contributors:
 
-	elolloto
+	A ghost behind u
 
 ]]
 
